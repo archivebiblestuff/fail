@@ -1,11 +1,11 @@
-title: KjvRam
+title: Romans Road
 description:  Here, you can find cool stuff I work on.
 remote_theme: tuur29/pages-themes-cayman
-darkmode: true
+darkmode: false
 color:
   header: "#000"
-  gradient_left: "#ff2400"
-  gradient_right: "#a020f0"
+  gradient_left: "#000000"
+  gradient_right: "#000000"
 logo_url: 
 gems:
 - jekyll-seo-tag
