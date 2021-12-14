@@ -1,5 +1,5 @@
 ---
-title: Romans Road
+title: IFBased
 layout: default
 ---
 
@@ -7,4 +7,4 @@ layout: default
 ### *Use physical Bible when out soulwinning to present the Gospel.*
 
 
-# [Click here to start](/stages)
+# [Click here to start](/soulwinning-instruction)
