@@ -3,20 +3,20 @@ title: Soul Winning Instruction
 layout: default
 ---
 
-## Basic Soul Winning Summary	1
-## Seminar Links	1
-### 1 - Starting the Conversation	2
-### 2 - Explaining the Gospel	3
-### 3 - Once Saved, Always Saved (OSAS)	6
-### 4 - Finishing Leading in Prayer	9
-### 5 - Tips for Different Religions	11
-#### Jehovah's Witnesses	12
-#### Catholics	13
-#### Atheists	14
-#### Jews	14
-#### Muslims, Hindus and Buddists	15
-### Last point - Titus 3:10	15
-### Key Verses	15
+## Basic Soul Winning Summary `p1`
+## Seminar Links `p1`
+### 1 - Starting the Conversation	`p2`
+### 2 - Explaining the Gospel	`p3`
+### 3 - Once Saved, Always Saved (OSAS)	`p6`
+### 4 - Finishing Leading in Prayer	`p9`
+### 5 - Tips for Different Religions	`p11`
+#### Jehovah's Witnesses	`p12`
+#### Catholics	`p13`
+#### Atheists	`p14`
+#### Jews	`p14`
+#### Muslims, Hindus and Buddists	`p15`
+### Last point - Titus 3:10	`p15`
+### Key Verses	`p15`
 
 # 
 
