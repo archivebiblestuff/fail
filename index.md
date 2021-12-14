@@ -7,4 +7,4 @@ layout: default
 ### *Use physical Bible when out soulwinning to present the Gospel.*
 
 
-# [Click here to start](/soulwinning-instruction)
+# [Click here to start](/soulwinning/soulwinning-instruction)
