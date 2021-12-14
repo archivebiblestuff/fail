@@ -13,6 +13,7 @@ https://www.youtube.com/watch?v=xTYN57c-niA
 ## 4. Trust Christ ALONE as your saviour
 ### *For by grace are ye saved through faith; and that not of yourselves: it is the gift of God: Not of works, lest any man should boast (Ephesians 2:8-9)*
 
+# 
 
 # Seminar Links
 ### Seminar 1 [Starting the Conversation](https://www.youtube.com/watch?v=a2a0CmfBWRY&list=PLnnak9ni21Y9BMGOfr3XxAcGadBKC0lQj&index=2)
