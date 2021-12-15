@@ -9,7 +9,7 @@ layout: default
 * Cut to the chase don't waste people's time: let them know who you are and why you are there
 * Ask questions but don't interrogate people
 
-#### Figure out their beliefs first:
+### Figure out their beliefs first:
 * Are you a Christian? A Lot of people will give you a positive answer
 * Do you go to church anywhere?
 
@@ -24,7 +24,7 @@ Could be John 3:16, and then expound on it e.g _“Notice how the verse doesnt s
 **If they say the right answer:** _“Believe on the Lord Jesus Christ!”_
 Follow up with _“Well, Do you think there is anything you can do to lose that salvation?” _
 
-#### Personal life - Friends, Family, Coworkers
+### Personal life - Friends, Family, Coworkers
 Great opportunities for discipleship as you see them frequently. 
 If you are alone with someone, give them the gospel. 
 
