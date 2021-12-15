@@ -5,7 +5,7 @@ layout: default
 
 ## Basic Soul Winning Summary 
 #### 1 - [Starting the Conversation](/soulwinning/soulwinning-instruction/starting-the-conversation)
-#### 2 - [Explaining the Gospel	](/soulwinning/soulwinning-instruction/explaining-the-gospel.md)
+#### 2 - [Explaining the Gospel	](/soulwinning/soulwinning-instruction/explaining-the-gospel)
 #### 3 - Once Saved, Always Saved (OSAS)
 #### 4 - Finishing Leading in Prayer
 #### 5 - Tips for Different Religions
