@@ -122,6 +122,6 @@ Death, Burial, and Resurrection of Christ
 What must we do to be saved?
 **Eternal security of the believer**
 
----
+___
 
 ### [Next: Once Saved, Always Saved (OSAS)](/soulwinning/soulwinning-instruction/osas)
