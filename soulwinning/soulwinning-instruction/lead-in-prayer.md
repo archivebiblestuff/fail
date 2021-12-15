@@ -47,19 +47,24 @@ Remind them it's not the words that save them, but believing in their heart what
 If they say, they have already prayed that prayer before, explain to them that it is not the prayer that saves you, it's that you have to believe on Christ and fully trust Him. e.g “Well when I first got here, you said you have to do \_\_\_\_ to go to Heaven, now you see it is by faith and believing on Jesus alone, so now you are ready to call upon the name of the Lord”
 "You need to choose to believe and ask God to save you right now."
 
- _Romans 10:13
+   _Romans 10:13
    For whosoever shall call upon the name of the Lord shall be saved._
 
- _Romans 10:9-10
+   _Romans 10:9-10
 That if thou shalt confess with thy mouth the Lord Jesus, and shalt believe in thine heart that God hath raised him from the dead, thou shalt be saved. For with the heart man believeth unto righteousness; and with the mouth confession is made unto salvation._
+
 If they still object, just walk away. 
 
 **Note**: Confessing isn't a “work”. Asking for something isn't working for it. 
+
    _John 4:10
   Jesus answered and said unto her, If thou knewest the gift of God, and who it is that saith to thee, Give me to drink; thou wouldest have asked of him, and he would have given thee living water._
+
 After you've prayed - **what's next?**
+
    _Ephesians 4:30
    And grieve not the holy Spirit of God, whereby ye are sealed unto the day of redemption._
+
 #### Don't ask: 
 * How do you feel? > It's not about feelings
 * Did you mean that? > Placing doubt in their mind
