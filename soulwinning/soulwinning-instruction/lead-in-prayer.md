@@ -79,7 +79,7 @@ Say _“Hey you meant that, didn't you. You know the Bible says you're on your w
 * Invite them to church, ask them to find you when they get there
 * Encourage them to get baptised 
 
- _Acts 8:36-37
+    _Acts 8:36-37
   And as they went on their way, they came unto a certain water: and the eunuch said, See, here is water; what doth hinder me to be baptized? And Philip said, If thou believest with all thine heart, thou mayest. And he answered and said, I believe that Jesus Christ is the Son of God._
 
 #### Main emphasis:
