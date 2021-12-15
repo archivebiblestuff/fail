@@ -73,9 +73,9 @@ You deserve to go to hell
 
 Jesus loves you and died for you
 
-**Who Jesus is
+**Who Jesus is**
 
-Death, Burial, and Resurrection of Christ**
+**Death, Burial, and Resurrection of Christ**
 
 #### Who is Jesus?
 Don't assume people know who He is or basic principles of the Bible. 
