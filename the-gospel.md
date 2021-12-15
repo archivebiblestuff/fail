@@ -142,27 +142,27 @@ layout: default
 
 * "And all that dwell upon the earth shall worship him, whose names are not written in the book of life of the Lamb slain from the foundation of the world." Revelation 13:8
 
-"For what saith the scripture? Abraham believed God, and it was counted unto him for righteousness." Romans 4:3
+* "For what saith the scripture? Abraham believed God, and it was counted unto him for righteousness." Romans 4:3
 
-“And to Seth, to him also there was born a son; and he called his name Enos: then began men to call upon the name of the LORD.” Genesis 4:26
+* “And to Seth, to him also there was born a son; and he called his name Enos: then began men to call upon the name of the LORD.” Genesis 4:26
 
-“Unto the place of the altar, which he had make there at the first: and there Abram called on the name of the Lord.” Genesis 13:4
+* “Unto the place of the altar, which he had make there at the first: and there Abram called on the name of the Lord.” Genesis 13:4
 
-“For whosoever shall call upon the name of the Lord shall be saved. How then shall they call on him in whom they have not believed?” Romans 10:13-14, (Similar in Acts 2:21)
+* “For whosoever shall call upon the name of the Lord shall be saved. How then shall they call on him in whom they have not believed?” Romans 10:13-14, (Similar in Acts 2:21)
 
-“For the LORD is good; his mercy is everlasting; and his truth endureth to all generations.” Psalms 100:5
+* “For the LORD is good; his mercy is everlasting; and his truth endureth to all generations.” Psalms 100:5
 
-“Jesus saith unto him, I am the way, the truth, and the life: no man cometh unto the Father, but by me.” John 14:6
+* “Jesus saith unto him, I am the way, the truth, and the life: no man cometh unto the Father, but by me.” John 14:6
 
-“But Israel shall be saved in the LORD with an everlasting salvation: ye shall not be ashamed nor confounded world without end.” Isaiah 45:17
+* “But Israel shall be saved in the LORD with an everlasting salvation: ye shall not be ashamed nor confounded world without end.” Isaiah 45:17
 
-“These all died in faith, not having received the promises, but having seen them afar off, and were persuaded of them, and embraced them, and confessed that they were strangers and pilgrims on the earth.” Hebrews 11:13
+* “These all died in faith, not having received the promises, but having seen them afar off, and were persuaded of them, and embraced them, and confessed that they were strangers and pilgrims on the earth.” Hebrews 11:13
 
-“Even as Abraham believed God, and it was accounted to him for righteousness.  Know ye therefore that they which are of faith, the same are the children of Abraham.  And the scripture, foreseeing that God would justify the heathen through faith, preached before the gospel unto Abraham, saying, In thee shall all nations be blessed.” Galatians 3:6-8
+* “Even as Abraham believed God, and it was accounted to him for righteousness.  Know ye therefore that they which are of faith, the same are the children of Abraham.  And the scripture, foreseeing that God would justify the heathen through faith, preached before the gospel unto Abraham, saying, In thee shall all nations be blessed.” Galatians 3:6-8
 
-"These things have I written unto you that believe on the name of the Son of God; that ye may know that ye have eternal life, and that ye may believe on the name of the Son of God." 1 John 5:13-15
+* "These things have I written unto you that believe on the name of the Son of God; that ye may know that ye have eternal life, and that ye may believe on the name of the Son of God." 1 John 5:13-15
 
 ### Join the body of Christ today. Believe the Gospel and rely on the death, burial, and resurrection of Jesus Christ to pay for all of your sins in full. Get saved, get a KJV, and get fundamental.
-“Likewise, I say unto you, there is joy in the presence of the angels of God over one sinner that repenteth.” Luke 15:10
+* “Likewise, I say unto you, there is joy in the presence of the angels of God over one sinner that repenteth.” Luke 15:10
 
-"Heaven and earth shall pass away, but my words shall not pass away." Matthew 24:35
+* "Heaven and earth shall pass away, but my words shall not pass away." Matthew 24:35
