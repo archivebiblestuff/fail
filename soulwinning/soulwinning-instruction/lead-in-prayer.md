@@ -4,7 +4,7 @@ layout: default
 ---
 ## 4 - Finishing Leading in Prayer
 
- _2 Corinthians 6:2
+  _2 Corinthians 6:2
  (For he saith, I have heard thee in a time accepted, and in the day of salvation have I succoured thee: behold, now is the accepted time; behold, now is the day of salvation.)_
 
 Show them the difference:
@@ -46,17 +46,18 @@ Remind them it's not the words that save them, but believing in their heart what
 If they say, they have already prayed that prayer before, explain to them that it is not the prayer that saves you, it's that you have to believe on Christ and fully trust Him. e.g “Well when I first got here, you said you have to do \_\_\_\_ to go to Heaven, now you see it is by faith and believing on Jesus alone, so now you are ready to call upon the name of the Lord”
 "You need to choose to believe and ask God to save you right now."
 
-   _Romans 10:13
+ _Romans 10:13
    For whosoever shall call upon the name of the Lord shall be saved._
-  _Romans 10:9-10
+
+ _Romans 10:9-10
 That if thou shalt confess with thy mouth the Lord Jesus, and shalt believe in thine heart that God hath raised him from the dead, thou shalt be saved. For with the heart man believeth unto righteousness; and with the mouth confession is made unto salvation._
 If they still object, just walk away. 
 
 **Note**: Confessing isn't a “work”. Asking for something isn't working for it. 
-  _John 4:10
+ _John 4:10
   Jesus answered and said unto her, If thou knewest the gift of God, and who it is that saith to thee, Give me to drink; thou wouldest have asked of him, and he would have given thee living water._
 After you've prayed - **what's next?**
-   _Ephesians 4:30
+ _Ephesians 4:30
    And grieve not the holy Spirit of God, whereby ye are sealed unto the day of redemption._
 #### Don't ask: 
 * How do you feel? > It's not about feelings
@@ -75,7 +76,8 @@ Say _“Hey you meant that, didn't you. You know the Bible says you're on your w
 * Go to the table of contents and check it off to keep track
 * Invite them to church, ask them to find you when they get there
 * Encourage them to get baptised 
-  _Acts 8:36-37
+
+ _Acts 8:36-37
   And as they went on their way, they came unto a certain water: and the eunuch said, See, here is water; what doth hinder me to be baptized? And Philip said, If thou believest with all thine heart, thou mayest. And he answered and said, I believe that Jesus Christ is the Son of God._
 
 #### Main emphasis:
