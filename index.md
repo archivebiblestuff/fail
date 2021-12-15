@@ -3,8 +3,8 @@ title: IFBased
 layout: default
 ---
 
-## How to present the Gospel of Jesus Christ. (KJV)
-### *Use physical Bible when out soulwinning to present the Gospel.*
+### How to present the Gospel of Jesus Christ. (KJV)
+#### *Use physical Bible when out soulwinning to present the Gospel.*
 
-
-# [Click here to start](/soulwinning/soulwinning-instruction)
+---
+## [Click here to start](/soulwinning/soulwinning-instruction)
