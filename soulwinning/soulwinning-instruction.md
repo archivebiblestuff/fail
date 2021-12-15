@@ -3,13 +3,13 @@ title: Soul Winning Instruction
 layout: default
 ---
 
-## Basic Soul Winning Summary 
+## Soul Winning Instruction
 #### 1 - [Starting the Conversation](/soulwinning/soulwinning-instruction/starting-the-conversation)
 #### 2 - [Explaining the Gospel	](/soulwinning/soulwinning-instruction/explaining-the-gospel)
 #### 3 - [Once Saved, Always Saved (OSAS)](/soulwinning/soulwinning-instruction/osas)
 #### 4 - [Finishing Leading in Prayer](/soulwinning/soulwinning-instruction/lead-in-prayer)
 #### 5 - [Tips for Different Religions](/soulwinning/soulwinning-instruction/religions)
-   * Jehovah's Witnesses
+   * [Jehovah's Witnesses](/soulwinning/soulwinning-instruction/religions#jehovahs-witnesses)
    * Catholics
    * Atheists
    * Jews
