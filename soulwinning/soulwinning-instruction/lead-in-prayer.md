@@ -34,9 +34,9 @@ Why people might not want to pray with you
 #### What is the prayer itself?
 A guide.. Does Not need to be exactly like this. 
 
-_“Dear Lord. I know I'm a sinner, I know I deserve to go to hell, but I believe that you died on the cross for my sins and rose again. Please save me right now and give me eternal life. I'm only trusting you alone Jesus, Amen.”
+_“Dear Lord. I know I'm a sinner, I know I deserve to go to hell, but I believe that you died on the cross for my sins and rose again. Please save me right now and give me eternal life. I'm only trusting you alone Jesus, Amen.”_
 
-If they have a speech impediment it could even be as simple as “Dear Jesus, Please save me, Amen”._ 
+If they have a speech impediment it could even be as simple as _“Dear Jesus, Please save me, Amen”._ 
 
 #### Luke 15:10
 _Likewise, I say unto you, there is joy in the presence of the angels of God over one sinner that repenteth._
