@@ -9,11 +9,11 @@ The biggest **enemy** to the gospel is the doctrine of **work based salvation** 
 
 If you can lose your salvation, you are basically saying that you have to do something to be saved, or maintain some level of morality. This is one of the best ways to tell if someone is saved or not. Don't explain this doctrine AFTER prayer, as this is where it usually clicks for the person.
 
-  Galatians 2:16
- _Knowing that a man is not justified by the works of the law, but by the faith of Jesus Christ, even we have believed in Jesus Christ, that we might be justified by the faith of Christ, and not by the works of the law: for by the works of the law shall no flesh be justified._
+  _Galatians 2:16
+  Knowing that a man is not justified by the works of the law, but by the faith of Jesus Christ, even we have believed in Jesus Christ, that we might be justified by the faith of Christ, and not by the works of the law: for by the works of the law shall no flesh be justified._
 
-  Romans 3:20
- _Therefore by the deeds of the law there shall no flesh be justified in his sight: for by the law is the knowledge of sin._
+  _Romans 3:20
+  Therefore by the deeds of the law there shall no flesh be justified in his sight: for by the law is the knowledge of sin._
 
   We are justified by faith. 
   _1 John 5:10
