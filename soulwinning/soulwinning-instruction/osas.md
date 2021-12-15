@@ -24,7 +24,7 @@ If you can lose your salvation, you are basically saying that you have to do som
 
 #### Two kinds of people: 
 * 1. Those that believe God and in the record that He has given us eternal life through His son. 
-*2 .Those who made God a liar. 
+* 2 .Those who made God a liar. 
 
 #### How long is eternal? 
 Forever..everlasting..
