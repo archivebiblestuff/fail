@@ -15,7 +15,7 @@ If you can lose your salvation, you are basically saying that you have to do som
   _Romans 3:20
   Therefore by the deeds of the law there shall no flesh be justified in his sight: for by the law is the knowledge of sin._
 
-  We are justified by faith. 
+We are justified by faith. 
   _1 John 5:10
   He that believeth on the Son of God hath the witness in himself: he that believeth not God hath made him a liar; because he believeth not the record that God gave of his Son._
 
@@ -32,7 +32,7 @@ Forever..everlasting..
    He that believeth on the Son hath everlasting life: and he that believeth not the Son shall not see life; but the wrath of God abideth on him._
 
 That doesn't mean we should keep sinning, but if we do, we are covered.
-   _Romans 6:1-2
+  _Romans 6:1-2
    What shall we say then? Shall we continue in sin, that grace may abound? God forbid. How shall we, that are dead to sin, live any longer therein?_
 
   _1 John 2:1-2
@@ -52,7 +52,9 @@ Another illustration is of a **Father and a Son.**
 Ask them if they have children, or use their child as an example. 
 If your child breaks the rules, you are going to discipline them, but you're not going to throw them out of the family. They are always going to be a part of the family. Even if they said “well i'm not sure you're really my dad/mom”, that doubt wouldn't make them no longer your child. 
 
-He will discipline you and chastise you. But what He won't do is leave you or forsake you. The way you balance the doctrine of eternal security is with the chastisement of God. If you sin, God is going to punish you, even if you're saved. The lifestyle that we live matters. It doesn't matter in regards to our salvation, but you will still be punished on this earth. There are still consequences for our actions. 
+He will discipline you and chastise you. But what He won't do is leave you or forsake you. 
+The way you balance the doctrine of eternal security is with the chastisement of God. If you sin, God is going to punish you, even if you're saved.
+The lifestyle that we live matters. It doesn't matter in regards to our salvation, but you will still be punished on this earth. There are still consequences for our actions. 
 
   _Hebrews 12:9–11
   Furthermore we have had fathers of our flesh which corrected us, and we gave them reverence: shall we not much rather be in subjection unto the Father of spirits, and live? For they verily for a few days chastened us after their own pleasure; but he for our profit, that we might be partakers of his holiness. Now no chastening for the present seemeth to be joyous, but grievous: nevertheless afterward it yieldeth the peaceable fruit of righteousness unto them which are exercised thereby._
@@ -67,10 +69,13 @@ He will discipline you and chastise you. But what He won't do is leave you or fo
   For I am persuaded, that neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come, Nor height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord._
 
 Then, you can go into an even **easier explanation.**
+
 Well, what if you do something really bad though? A really big sin? 
+
 If I go out and commit a really big sin, I'm going to get a really big punishment, on this earth. 
 
 E.g if i kill someone, I could go to jail. If I commit adultery, I could lose my job or my family. 
+
 But that's on earth, when we get to the Great white throne of judgement, when it comes to Heaven and Hell, it depends on whether we have believed on Jesus Christ as our Saviour. 
 
   _John 10:28
@@ -78,7 +83,9 @@ But that's on earth, when we get to the Great white throne of judgement, when it
 
   _John 5:24
   Verily, verily, I say unto you, He that heareth my word, and believeth on him that sent me, hath everlasting life, and shall not come into condemnation; but is passed from death unto life._
+
 Have - present tense. Not in the future, not temporary. 
+
 Don't go crazy with the examples e.g mass murderers, serial killers, or you will start to sound ridiculous. 
 
 ___
