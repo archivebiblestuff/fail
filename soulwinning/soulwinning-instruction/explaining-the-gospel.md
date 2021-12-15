@@ -6,17 +6,18 @@ layout: default
 ## Explaning the Gospel 
 *Matthew 4:19 - And he saith unto them, Follow me, and I will make you fishers of men.*
 
-#### You've started the conversation, now your goals are:
+### You've started the conversation, now your goals are:
 1. Use the Bible (KJV)
     _Romans 10:17 - So then faith cometh by hearing, and hearing by the word of God_
 2. Make the Bible easy to understand - teach people. 
 * Don't jump around the below points and make sure it flows. The goal is to be easily understood. 
 * Time? As much as necessary but not too much time or you may lose people's interest. Typically takes 10-15 minutes. It may take longer sometimes, but only if you are making progress e.g they are receptive. 
 
-#### First Steps:
+### First Steps:
 * You are a sinner
 * You deserve to go to hell
 
+### Q&As
 What's the purpose of being saved, if you don't know what you are being saved from?
 
 Show them they are a sinner. 
