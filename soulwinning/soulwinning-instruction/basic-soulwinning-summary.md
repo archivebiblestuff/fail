@@ -14,4 +14,4 @@ https://www.youtube.com/watch?v=xTYN57c-niA
 ### *For by grace are ye saved through faith; and that not of yourselves: it is the gift of God: Not of works, lest any man should boast (Ephesians 2:8-9)*
 
 ___
-#### [Soul winning Instruction](/soulwinning/soulwinning-instruction)
+#### [Soul Winning Instruction](/soulwinning/soulwinning-instruction)
