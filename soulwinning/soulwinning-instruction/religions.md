@@ -58,5 +58,13 @@ Make sure you emphasise the bodily resurrection of Jesus because they've been ta
    _Luke 24:39-40
    Behold my hands and my feet, that it is I myself: handle me, and see; for a spirit hath not flesh and bones, as ye see me have. And when he had thus spoken, he shewed them his hands and his feet._
 
+### Catholics
 
+Go through everything the same, but add 1 step to the end right before the prayer. Say something along the lines of:
+_“Now you mentioned you went to \_\_\_\_\_ church, now let me tell you the Catholic Church teaches something completely different than what I showed you today. They teach you that you actually do have to go to church, you do have to do works (confess your sins to the priest, take the sacraments). They teach you that faith is not enough to save you, but I showed you from the Bible that it is enough. So which one do you believe?”_
 
+Make sure we aren't adding it onto the Catholic religion, it's new doctrine. 
+* They may say, well no I still am sticking with the Catholic church. 
+* Hopefully, they respond with _“Well I'm going to believe what the Bible says_” then you can pray with them. 
+* Make sure they know to pray to God alone and no longer saints or Mary. 1 Timothy 2:5 - For there is one God, and one mediator between God and men, the man Christ Jesus;
+* Explain how they can pray to God like their Father, no longer the rosary. Matthew 6:7 - But when ye pray, use not vain repetitions, as the heathen do: for they think that they shall be heard for their much speaking.
