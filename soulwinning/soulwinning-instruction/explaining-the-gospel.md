@@ -3,7 +3,7 @@ title: Explaining the Gospel
 layout: default
 ---
 
-## Explaning the Gospel 
+## 2 - Explaning the Gospel 
 *Matthew 4:19 - And he saith unto them, Follow me, and I will make you fishers of men.*
 
 ### You've started the conversation, now your goals are:
