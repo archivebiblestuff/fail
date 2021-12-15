@@ -55,10 +55,10 @@ That if thou shalt confess with thy mouth the Lord Jesus, and shalt believe in t
 If they still object, just walk away. 
 
 **Note**: Confessing isn't a “work”. Asking for something isn't working for it. 
- _John 4:10
+   _John 4:10
   Jesus answered and said unto her, If thou knewest the gift of God, and who it is that saith to thee, Give me to drink; thou wouldest have asked of him, and he would have given thee living water._
 After you've prayed - **what's next?**
- _Ephesians 4:30
+   _Ephesians 4:30
    And grieve not the holy Spirit of God, whereby ye are sealed unto the day of redemption._
 #### Don't ask: 
 * How do you feel? > It's not about feelings
@@ -69,6 +69,7 @@ Say _“Hey you meant that, didn't you. You know the Bible says you're on your w
 
 #### Leave them with something to help them grow as a new Christian:
 * [New Believer PDF](/assets/pdf/New%20Believer.pdf) by [Clarissa](https://www.reddit.com/user/ClarissaRomans4/)
+* Invite them to [Saved Baptists](https://discord.gg/CSeuchFqqc)
 * New Testament/Full Bible (KJV)
 * DVD/Preaching CD
 * Open the Bible and show them where to start, bookmark John. 
