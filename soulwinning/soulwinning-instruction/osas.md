@@ -81,6 +81,6 @@ But that's on earth, when we get to the Great white throne of judgement, when it
 Have - present tense. Not in the future, not temporary. 
 Don't go crazy with the examples e.g mass murderers, serial killers, or you will start to sound ridiculous. 
 
----
+___
 
 ## [Next: Finishing Leading in Prayer](/soulwinning/soulwinning-instruction/lead-in-prayer)
