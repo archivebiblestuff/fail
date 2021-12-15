@@ -37,4 +37,4 @@ _**Important: You must truly love people - being nice/friendly comes naturally a
 
 ---
 
-### [Next: Explaining the Gospel](/soulwinning/soulwinning-instruction/explaining-the-gospel.md)
+### [Next: Explaining the Gospel](/soulwinning/soulwinning-instruction/explaining-the-gospel)
