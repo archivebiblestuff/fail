@@ -24,6 +24,7 @@ If at any time they take over the conversation (80-90% of the talking), walk awa
 * JH believes that Jesus is a created being. In their fake Bible in John 1:1 they changed it to say that Jesus was “a” God. 
 
 Good verses for **Trinity** to show them:
+
    _1 Timothy 3:16
    And without controversy great is the mystery of godliness: God was manifest in the flesh, justified in the Spirit, seen of angels, preached unto the Gentiles, believed on in the world, received up into glory._
 
@@ -40,15 +41,20 @@ And he said unto him, Why callest thou me good? there is none good but one, that
 Show them and ask them “Is Jesus good?”_
 
 Typical answer: “Well of course!”, 
+
 Response: “Well there is no one good but God..So you either have two choices. Either Jesus is God, or He is not good, you going to tell me Jesus isn't good?”
 
 **Don't** take them to:
+
    _1 John 5:7
 For there are three that bear record in heaven, the Father, the Word, and the Holy Ghost: and these three are one._
+
 Or John 1
+
 As they are indoctrinated to counter argument these verses. They've heard them their whole life. 
 
 Make sure you emphasise the bodily resurrection of Jesus because they've been taught a fake resurrection about how Jesus spirit left His body. 
+
    _Luke 24:39-40
    Behold my hands and my feet, that it is I myself: handle me, and see; for a spirit hath not flesh and bones, as ye see me have. And when he had thus spoken, he shewed them his hands and his feet._
 
