@@ -17,7 +17,6 @@ layout: default
 * You are a sinner
 * You deserve to go to hell
 
-### Q&As
 What's the purpose of being saved, if you don't know what you are being saved from?
 
 Show them they are a sinner. 
@@ -38,6 +37,91 @@ There is a list of people that the Bible tells us are going there.
 Well we've all lied before. 
 
 Q. What if they say, I'm not a “liar” but I've told some lies.. 
-  * **A.** Revelation 21:27 _And there shall in no wise enter into it any thing that defileth, neither whatsoever worketh abomination, or maketh a lie: but they which are written in the Lamb's book of life._
-  * **B.** OR ask this Question. How many people do you have to murder to be a murderer? 
+* **A.** Revelation 21:27 _And there shall in no wise enter into it any thing that defileth, neither whatsoever worketh abomination, or maketh a lie: but they which are written in the Lamb's book of life._
+* **B.** OR ask this Question. How many people do you have to murder to be a murderer? 
 
+Q. I don't believe in a literal hell..
+* Mark 9 - Jesus talked about hell at the end of Mark 9
+
+Jesus also said..
+* _1 John 3:15 Whosoever hateth his brother is a murderer: and ye know that no murderer hath eternal life abiding in him._
+
+* _Matthew 5:28 But I say unto you, That whosoever looketh on a woman to lust after her hath committed adultery with her already in his heart._
+
+### Next step:
+1. You are a sinner
+2. You deserve to go to hell
+3. **Jesus loves you and died for you**
+
+Q. But God loves you, do you think he wants you to go to hell?
+* **A.** Of Course not.. You wouldn't want someone you love to go to hell?
+   But when you look at Rev 21:8, do you think he was just kidding when He said that?
+   Well no, because that's what we deserve… but He loves us and doesn't want us to go there. 
+   So here's what He did for us to save us so that we would not go there. 
+   The Bible said that _“But God commendeth his love toward us, in that, while we were yet sinners, Christ died for us.”_ (Romans 5:8). 
+   So Jesus Christ died for us, meaning that He took our place. 
+   He took the punishment that we deserve and died for us..
+
+### Next steps:
+You are a sinner
+You deserve to go to hell
+Jesus loves you and died for you
+**Who Jesus is
+Death, Burial, and Resurrection of Christ**
+
+#### Who is Jesus?
+Don't assume people know who He is or basic principles of the Bible. 
+A quick review of who Jesus is.
+* The son of God
+* God in the flesh
+* Dwelt among us
+* Lived a perfect life that none of us could live
+* Performed miracles
+* Preached the word of God
+* A Lot of people didn't like his preaching so He was arrested and hung on the cross
+* When they died they took His body and buried it in the tomb
+* His soul went down to hell for 3 days and 3 nights
+* Rose again and showed Himself alive with the holes in His hands (good to point out as it shows it was a bodily resurrection not a spiritual one)
+
+The fact that Jesus died for us doesn't mean we are all going to Heaven, does it?
+(Refer to Revelation again)
+
+
+### Next step:
+You are a sinner
+You deserve to go to hell
+Jesus loves you and died for you
+Who Jesus is
+Death, Burial, and Resurrection of Christ
+**What must we do to be saved?**
+So the question is, what do we have to do, in order to be saved?
+The answer is found in Acts 16:30-31 (show them)
+ _Acts 16:30-31 And brought them out, and said, Sirs, what must I do to be saved? And they said, Believe on the Lord Jesus Christ, and thou shalt be saved, and thy house._
+
+It didn't say go to church, turn from your sins, be a good person, to be saved..
+
+Then take them to John 3:16 
+_(Most people have heard it before, but often they haven't understood it? Acts 8:31 - And he said, How can I, except some man, should guide me? And he desired Philip that he would come up and sit with him.)_
+
+_John 3:16 For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life._
+
+You could even show them more verses on salvation by faith.
+
+_Ephesians 2:8-9
+For by grace are ye saved through faith; and that not of yourselves: it is the gift of God: Not of works, lest any man should boast._
+
+_John 6:47
+Verily, verily, I say unto you, He that believeth on me hath everlasting life._
+
+#### Next step:
+You are a sinner
+You deserve to go to hell
+Jesus loves you and died for you
+Who Jesus is
+Death, Burial, and Resurrection of Christ
+What must we do to be saved?
+**Eternal security of the believer**
+
+---
+
+### [Next: Once Saved, Always Saved (OSAS)](/soulwinning/soulwinning-instruction/osas)
