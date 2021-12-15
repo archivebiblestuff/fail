@@ -10,7 +10,7 @@ layout: default
 #### 4 - [Finishing Leading in Prayer](/soulwinning/soulwinning-instruction/lead-in-prayer)
 #### 5 - [Tips for Different Religions](/soulwinning/soulwinning-instruction/religions)
    * [Jehovah's Witnesses](/soulwinning/soulwinning-instruction/religions#jehovahs-witnesses)
-   * Catholics
+   * [Catholics](/soulwinning/soulwinning-instruction/religions#catholics)
    * Atheists
    * Jews
    * Muslims, Hindus and Buddists
