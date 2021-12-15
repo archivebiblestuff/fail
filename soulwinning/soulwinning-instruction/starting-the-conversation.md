@@ -35,4 +35,6 @@ _“Well more important than that.. Do you know if you died today would you go t
 
 _**Important: You must truly love people - being nice/friendly comes naturally and comes from the heart. People will sense that.**_
 
+---
+
 ### [Next: Explaining the Gospel](/soulwinning/soulwinning-instruction/explaining-the-gospel.md)
