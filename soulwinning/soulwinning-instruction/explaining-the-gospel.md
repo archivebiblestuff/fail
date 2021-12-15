@@ -8,7 +8,9 @@ layout: default
 
 ### You've started the conversation, now your goals are:
 1. Use the Bible (KJV)
+
     _Romans 10:17 - So then faith cometh by hearing, and hearing by the word of God_
+
 2. Make the Bible easy to understand - teach people. 
 * Don't jump around the below points and make sure it flows. The goal is to be easily understood. 
 * Time? As much as necessary but not too much time or you may lose people's interest. Typically takes 10-15 minutes. It may take longer sometimes, but only if you are making progress e.g they are receptive. 
@@ -50,7 +52,9 @@ Jesus also said..
 
 ### Next step:
 1. You are a sinner
+
 2. You deserve to go to hell
+
 3. **Jesus loves you and died for you**
 
 Q. But God loves you, do you think he wants you to go to hell?
@@ -64,13 +68,18 @@ Q. But God loves you, do you think he wants you to go to hell?
 
 ### Next steps:
 You are a sinner
+
 You deserve to go to hell
+
 Jesus loves you and died for you
+
 **Who Jesus is
+
 Death, Burial, and Resurrection of Christ**
 
 #### Who is Jesus?
 Don't assume people know who He is or basic principles of the Bible. 
+
 A quick review of who Jesus is.
 * The son of God
 * God in the flesh
@@ -89,37 +98,51 @@ The fact that Jesus died for us doesn't mean we are all going to Heaven, does it
 
 ### Next step:
 You are a sinner
+
 You deserve to go to hell
+
 Jesus loves you and died for you
+
 Who Jesus is
+
 Death, Burial, and Resurrection of Christ
+
 **What must we do to be saved?**
+
 So the question is, what do we have to do, in order to be saved?
+
 The answer is found in Acts 16:30-31 (show them)
- _Acts 16:30-31 And brought them out, and said, Sirs, what must I do to be saved? And they said, Believe on the Lord Jesus Christ, and thou shalt be saved, and thy house._
+
+   _Acts 16:30-31 And brought them out, and said, Sirs, what must I do to be saved? And they said, Believe on the Lord Jesus Christ, and thou shalt be saved, and thy house._
 
 It didn't say go to church, turn from your sins, be a good person, to be saved..
 
 Then take them to John 3:16 
-_(Most people have heard it before, but often they haven't understood it? Acts 8:31 - And he said, How can I, except some man, should guide me? And he desired Philip that he would come up and sit with him.)_
+    _(Most people have heard it before, but often they haven't understood it? Acts 8:31 - And he said, How can I, except some man, should guide me? And he desired Philip that he would come up and sit with him.)_
 
-_John 3:16 For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life._
+   _John 3:16 For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life._
 
 You could even show them more verses on salvation by faith.
 
-_Ephesians 2:8-9
+   _Ephesians 2:8-9
 For by grace are ye saved through faith; and that not of yourselves: it is the gift of God: Not of works, lest any man should boast._
 
-_John 6:47
+   _John 6:47
 Verily, verily, I say unto you, He that believeth on me hath everlasting life._
 
 #### Next step:
 You are a sinner
+
 You deserve to go to hell
+
 Jesus loves you and died for you
+
 Who Jesus is
+
 Death, Burial, and Resurrection of Christ
+
 What must we do to be saved?
+
 **Eternal security of the believer**
 
 ___
