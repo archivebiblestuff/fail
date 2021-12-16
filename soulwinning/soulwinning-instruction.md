@@ -9,14 +9,13 @@ layout: default
 #### 3 - [Once Saved, Always Saved (OSAS)](/soulwinning/soulwinning-instruction/osas)
 #### 4 - [Finishing Leading in Prayer](/soulwinning/soulwinning-instruction/lead-in-prayer)
 #### 5 - [Tips for Different Religions](/soulwinning/soulwinning-instruction/religions)
-#### 6 - [Key Verses](/soulwinning/soulwinning-instruction/key-verses)
    * [Jehovah's Witnesses](/soulwinning/soulwinning-instruction/religions#jehovahs-witnesses)
    * [Catholics](/soulwinning/soulwinning-instruction/religions#catholics)
    * [Atheists](/soulwinning/soulwinning-instruction/religions#atheists)
    * [Jews](/soulwinning/soulwinning-instruction/religions#jews)
    * [Muslims, Hindus and Buddists](soulwinning/soulwinning-instruction/religion#muslims-hindus-and-buddists)
    * [Last point](soulwinning/soulwinning-instruction/religion#last-point)
-
+#### 6 - [Key Verses](/soulwinning/soulwinning-instruction/key-verses)
 ---
 
 # Seminar Links
