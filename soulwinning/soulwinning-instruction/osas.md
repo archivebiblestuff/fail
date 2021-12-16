@@ -23,8 +23,9 @@ We are justified by faith.
   In hope of eternal life, which God, that cannot lie, promised before the world began;_
 
 #### Two kinds of people: 
+
 * 1. Those that believe God and in the record that He has given us eternal life through His son. 
-* 2 .Those who made God a liar. 
+* 2. Those who made God a liar. 
 
 #### How long is eternal? 
 Forever..everlasting..
