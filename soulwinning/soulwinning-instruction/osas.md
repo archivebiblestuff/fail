@@ -24,8 +24,8 @@ We are justified by faith.
 
 #### Two kinds of people: 
 
-* 1. Those that believe God and in the record that He has given us eternal life through His son. 
-* 2. Those who made God a liar. 
+* Those that believe God and in the record that He has given us eternal life through His son. 
+* Those who made God a liar. 
 
 #### How long is eternal? 
 Forever..everlasting..
