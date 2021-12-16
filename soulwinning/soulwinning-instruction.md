@@ -15,6 +15,7 @@ layout: default
    * [Jews](/soulwinning/soulwinning-instruction/religions#jews)
    * [Muslims, Hindus and Buddists](soulwinning/soulwinning-instruction/religion#muslims-hindus-and-buddists)
    * [Last point](soulwinning/soulwinning-instruction/religion#last-point)
+
 #### 6 - [Key Verses](/soulwinning/soulwinning-instruction/key-verses)
 
 ---
