@@ -1,6 +1,6 @@
 ---
 title: Basic Soul Winning Summary & Links
-layout: default
+layout: soulwinning
 ---
 https://www.youtube.com/watch?v=xTYN57c-niA
 
