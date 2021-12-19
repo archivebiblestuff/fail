@@ -1,6 +1,7 @@
 ---
 title: Romans Road
 layout: romansrd
+description: Romans Road by Jack T. Christie (Just fixed some stuff)
 ---
 
 ## [Stage 1](soulwinning/romansroad/stage/1)
