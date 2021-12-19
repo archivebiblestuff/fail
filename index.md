@@ -1,6 +1,6 @@
 ---
 title: IFBased
-layout: default
+layout: homepage
 ---
 
 based
