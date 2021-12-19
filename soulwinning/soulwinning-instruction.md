@@ -16,7 +16,7 @@ layout: soulwinning
    * [Muslims, Hindus and Buddists](soulwinning/soulwinning-instruction/religion#muslims-hindus-and-buddists)
    * [Last point](soulwinning/soulwinning-instruction/religion#last-point)
 
-#### 6 - [Key Verses](/soulwinning/soulwinning-instruction/key-verses)
+#### 6 - [Key Verses](/soulwinning/soulwinning-instruction/key-verses) (Unfinished)
 
 ---
 
