@@ -1,6 +1,6 @@
 ---
 title: Tips for Different Religions
-layout: default
+layout: soulwinning
 ---
 
 ## 5 - Tips for Different Religions
