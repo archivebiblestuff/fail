@@ -1,6 +1,6 @@
 ---
 title: Starting the Conversation
-layout: default
+layout: soulwinning
 ---
 ## 1 - Starting the Conversation
 * If you are going door to door, start with a friendly knock. 
