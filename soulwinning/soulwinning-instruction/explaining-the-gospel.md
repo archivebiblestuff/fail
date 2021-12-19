@@ -4,12 +4,12 @@ layout: default
 ---
 
 ## 2 - Explaning the Gospel 
-*Matthew 4:19 - And he saith unto them, Follow me, and I will make you fishers of men.*
+```Matthew 4:19 - And he saith unto them, Follow me, and I will make you fishers of men.```
 
 ### You've started the conversation, now your goals are:
 1. Use the Bible (KJV)
 
-    _Romans 10:17 - So then faith cometh by hearing, and hearing by the word of God_
+```  Romans 10:17 - So then faith cometh by hearing, and hearing by the word of God```
 
 2. Make the Bible easy to understand - teach people. 
 * Don't jump around the below points and make sure it flows. The goal is to be easily understood. 
@@ -56,6 +56,7 @@ Jesus also said..
 2. You deserve to go to hell
 
 3. **Jesus loves you and died for you**
+
 
 Q. But God loves you, do you think he wants you to go to hell?
 * **A.** Of Course not.. You wouldn't want someone you love to go to hell?
@@ -113,22 +114,22 @@ So the question is, what do we have to do, in order to be saved?
 
 The answer is found in Acts 16:30-31 (show them)
 
-   _Acts 16:30-31 And brought them out, and said, Sirs, what must I do to be saved? And they said, Believe on the Lord Jesus Christ, and thou shalt be saved, and thy house._
+```Acts 16:30-31 And brought them out, and said, Sirs, what must I do to be saved? And they said, Believe on the Lord Jesus Christ, and thou shalt be saved, and thy house.```
 
 It didn't say go to church, turn from your sins, be a good person, to be saved..
 
 Then take them to John 3:16 
-    _(Most people have heard it before, but often they haven't understood it? Acts 8:31 - And he said, How can I, except some man, should guide me? And he desired Philip that he would come up and sit with him.)_
+    _(Most people have heard it before, but often they haven't understood it?_
 
-   _John 3:16 For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life._
+```Acts 8:31 - And he said, How can I, except some man, should guide me? And he desired Philip that he would come up and sit with him.```
+
+```John 3:16 For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.```
 
 You could even show them more verses on salvation by faith.
 
-   _Ephesians 2:8-9
-For by grace are ye saved through faith; and that not of yourselves: it is the gift of God: Not of works, lest any man should boast._
+```Ephesians 2:8-9 - For by grace are ye saved through faith; and that not of yourselves: it is the gift of God: Not of works, lest any man should boast.```
 
-   _John 6:47
-Verily, verily, I say unto you, He that believeth on me hath everlasting life._
+```John 6:47 - Verily, verily, I say unto you, He that believeth on me hath everlasting life.```
 
 #### Next step:
 You are a sinner
