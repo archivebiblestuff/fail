@@ -1,6 +1,6 @@
 ---
 title: Explaining the Gospel
-layout: default
+layout: soulwinning
 ---
 
 ## 2 - Explaning the Gospel 
