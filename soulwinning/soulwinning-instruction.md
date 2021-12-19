@@ -1,6 +1,6 @@
 ---
 title: Soul Winning Instruction
-layout: default
+layout: soulwinning
 ---
 
 ## Soul Winning Instruction
