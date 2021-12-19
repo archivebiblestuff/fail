@@ -1,6 +1,6 @@
 ---
 title: Key Verses
-layout: default
+layout: soulwinning
 ---
 
 ### Key Verses
