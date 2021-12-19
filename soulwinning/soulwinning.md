@@ -10,4 +10,6 @@ ___
 
 ## [Click here to start](/soulwinning/soulwinning-instruction)
 
+___
+
 ## [Sharing the Gospel using the Romans Road](/soulwinning/romansroad/stages)
