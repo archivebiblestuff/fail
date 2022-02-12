@@ -22,8 +22,7 @@ Romans 6:23
 
 Hell
 Revelation 20:14-15
-```And death and hell were cast into the lake of fire. This is the second death.
-And whosoever was not found written in the book of life was cast into the lake of fire.```
+```And death and hell were cast into the lake of fire. This is the second death. And whosoever was not found written in the book of life was cast into the lake of fire.```
 
 Whos going there
 Revelation 21:8
@@ -47,15 +46,13 @@ Romans 5:8
 
 What must I do to be saved?
 Acts 16:30-31 
-```And brought them out, and said, Sirs, what must I do to be saved?
-And they said, Believe on the Lord Jesus Christ, and thou shalt be saved, and thy house.```
+```And brought them out, and said, Sirs, what must I do to be saved? And they said, Believe on the Lord Jesus Christ, and thou shalt be saved, and thy house.```
 
 John 3:16
 ```For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.```
 
 Ephesians 2:8-9
-```For by grace are ye saved through faith; and that not of yourselves: it is the gift of God:
-Not of works, lest any man should boast.```
+```For by grace are ye saved through faith; and that not of yourselves: it is the gift of God: Not of works, lest any man should boast.```
 
 John 6:47
 ```Verily, verily, I say unto you, He that believeth on me hath everlasting life.```
@@ -80,8 +77,7 @@ John 3:36
 
 That doesn't mean we should keep sinning, but if we do, we are covered.
 Romans 6:1-2
-```What shall we say then? Shall we continue in sin, that grace may abound?
-God forbid. How shall we, that are dead to sin, live any longer therein?```
+```What shall we say then? Shall we continue in sin, that grace may abound? God forbid. How shall we, that are dead to sin, live any longer therein?```
 
 1 John 2:1
 ```My little children, these things write I unto you, that ye sin not. And if any man sin, we have an advocate with the Father, Jesus Christ the righteous:```
@@ -99,21 +95,15 @@ John 1:12
 = If we believe on the name of Jesus, we become the sons of God. 
 
 We are punished as children.
-```Hebrews 12:6-11
-6 For whom the Lord loveth he chasteneth, and scourgeth every son whom he receiveth.
-7 If ye endure chastening, God dealeth with you as with sons; for what son is he whom the father chasteneth not?
-8 But if ye be without chastisement, whereof all are partakers, then are ye bastards, and not sons.
-9 Furthermore we have had fathers of our flesh which corrected us, and we gave them reverence: shall we not much rather be in subjection unto the Father of spirits, and live?
-10 For they verily for a few days chastened us after their own pleasure; but he for our profit, that we might be partakers of his holiness.
-11 Now no chastening for the present seemeth to be joyous, but grievous: nevertheless afterward it yieldeth the peaceable fruit of righteousness unto them which are exercised thereby.```
+Hebrews 12:6-11
+```For whom the Lord loveth he chasteneth, and scourgeth every son whom he receiveth. If ye endure chastening, God dealeth with you as with sons; for what son is he whom the father chasteneth not? But if ye be without chastisement, whereof all are partakers, then are ye bastards, and not sons. Furthermore we have had fathers of our flesh which corrected us, and we gave them reverence: shall we not much rather be in subjection unto the Father of spirits, and live? For they verily for a few days chastened us after their own pleasure; but he for our profit, that we might be partakers of his holiness. Now no chastening for the present seemeth to be joyous, but grievous: nevertheless afterward it yieldeth the peaceable fruit of righteousness unto them which are exercised thereby.```
 
 But not foresaken
 Hebrews 13:5
 ```Let your conversation be without covetousness; and be content with such things as ye have: for he hath said, I will never leave thee, nor forsake thee.```
 
 Romans 8:38-39
-```For I am persuaded, that neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come,
-Nor height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord.```
+```For I am persuaded, that neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come, Nor height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord.```
 
 It is eternal
 John 10:28
@@ -158,17 +148,14 @@ Isaiah 9:6
 
 Bodily resurrection
 Luke 24:39-40
-```Behold my hands and my feet, that it is I myself: handle me, and see; for a spirit hath not flesh and bones, as ye see me have.
-And when he had thus spoken, he shewed them his hands and his feet.```
+```Behold my hands and my feet, that it is I myself: handle me, and see; for a spirit hath not flesh and bones, as ye see me have. And when he had thus spoken, he shewed them his hands and his feet.```
 
 Jewish
 John 5:46-47
-```For had ye believed Moses, ye would have believed me; for he wrote of me.
-But if ye believe not his writings, how shall ye believe my words?```
+```For had ye believed Moses, ye would have believed me; for he wrote of me. But if ye believe not his writings, how shall ye believe my words?```
 Signs
 Matthew 12:40-41
-```For as Jonas was three days and three nights in the whale's belly; so shall the Son of man be three days and three nights in the heart of the earth.
-The men of Nineveh shall rise in judgment with this generation, and shall condemn it: because they repented at the preaching of Jonas; and, behold, a greater than Jonas is here.```
+```For as Jonas was three days and three nights in the whale's belly; so shall the Son of man be three days and three nights in the heart of the earth. The men of Nineveh shall rise in judgment with this generation, and shall condemn it: because they repented at the preaching of Jonas; and, behold, a greater than Jonas is here.```
 
 Don't waste your time
 Titus 3:10
