@@ -103,14 +103,14 @@ Titus 1:2
 ```In hope of eternal life, which God, that cannot lie, promised before the world began;```
 
 #### How long is eternal? 
-forever.. everlastin..
+forever.. everlasting..
 
 John 3:36
 
 ```He that believeth on the Son hath everlasting life: and he that believeth not the Son shall not see life; but the wrath of God abideth on him.```
 
-**That doesn't mean we should keep sinning, but if we do, we are covered.
-**
+#### That doesn't mean we should keep sinning, but if we do, we are covered.
+
 Romans 6:1-2
 
 ```What shall we say then? Shall we continue in sin, that grace may abound? God forbid. How shall we, that are dead to sin, live any longer therein?```
@@ -123,21 +123,21 @@ Romans 6:1-2
 
 ```And he is the propitiation for our sins: and not for ours only, but also for the sins of the whole world.```
 
-**An easy way to explain is to use the analogy of a gift.
-**
+#### An easy way to explain is to use the analogy of a gift.
+
 Romans 6:23
 
 ```For the wages of sin is death; but the gift of God is eternal life through Jesus Christ our Lord.```
 
-**Another illustration is of a Father and a Son.
-**
+#### Another illustration is of a Father and a Son.
+
 John 1:12
 
 ```But as many as received him, to them gave he power to become the sons of God, even to them that believe on his name:```
 = If we believe on the name of Jesus, we become the sons of God. 
 
-**We are punished as children.
-**
+#### We are forsaken
+
 Hebrews 12:6-11
 
 ```For whom the Lord loveth he chasteneth, and scourgeth every son whom he receiveth. If ye endure chastening, God dealeth with you as with sons; for what son is he whom the father chasteneth not? But if ye be without chastisement, whereof all are partakers, then are ye bastards, and not sons. Furthermore we have had fathers of our flesh which corrected us, and we gave them reverence: shall we not much rather be in subjection unto the Father of spirits, and live? For they verily for a few days chastened us after their own pleasure; but he for our profit, that we might be partakers of his holiness. Now no chastening for the present seemeth to be joyous, but grievous: nevertheless afterward it yieldeth the peaceable fruit of righteousness unto them which are exercised thereby.```
@@ -152,8 +152,8 @@ Romans 8:38-39
 
 ```For I am persuaded, that neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come, Nor height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord.```
 
-**It is eternal
-**
+####  It is eternal
+
 John 10:28
 
 ```And I give unto them eternal life; and they shall never perish, neither shall any man pluck them out of my hand.```
@@ -163,12 +163,10 @@ John 5:24
 ```Verily, verily, I say unto you, He that heareth my word, and believeth on him that sent me, hath everlasting life, and shall not come into condemnation; but is passed from death unto life.```
 Have - present tense. Not in the future, not temporary. 
 
-**Sample prayer
-**
+#### Sample prayer
 ```“Dear Lord. I know I'm a sinner, I know I deserve to go to hell, but I believe that you died on the cross for my sins and rose again. Please save me right now and give me eternal life. I'm only trusting you Jesus, Amen.”```
 
-**Confess
-**
+#### Confess
 Romans 10:13
 
 ```For whosoever shall call upon the name of the Lord shall be saved.```
@@ -184,8 +182,8 @@ John 4:10
 
 ```Jesus answered and said unto her, If thou knewest the gift of God, and who it is that saith to thee, Give me to drink; thou wouldest have asked of him, and he would have given thee living water.```
 
-**The power to save is in the gospel
-**
+#### The power to save us is in the Gospel
+
 Romans 1:16
 
 ```For I am not ashamed of the gospel of Christ: for it is the power of God unto salvation to every one that believeth; to the Jew first, and also to the Greek.```
@@ -194,8 +192,8 @@ Acts 2:37
 
 ```Now when they heard this, they were pricked in their heart, and said unto Peter and to the rest of the apostles, Men and brethren, what shall we do?```
 
-**Jesus as God:
-**
+#### Jesus is God
+
 1 Timothy 3:16
 
 ```And without controversy great is the mystery of godliness: God was manifest in the flesh, justified in the Spirit, seen of angels, preached unto the Gentiles, believed on in the world, received up into glory.```
@@ -208,14 +206,13 @@ Isaiah 9:6
 
 ```For unto us a child is born, unto us a son is given: and the government shall be upon his shoulder: and his name shall be called Wonderful, Counsellor, The mighty God, The everlasting Father, The Prince of Peace.```
 
-**Bodily resurrection
-**
+#### Bodily ressurection
 Luke 24:39-40
 
 ```Behold my hands and my feet, that it is I myself: handle me, and see; for a spirit hath not flesh and bones, as ye see me have. And when he had thus spoken, he shewed them his hands and his feet.```
 
-**Jewish
-**
+#### Jewish
+
 John 5:46-47
 
 ```For had ye believed Moses, ye would have believed me; for he wrote of me. But if ye believe not his writings, how shall ye believe my words?```
@@ -225,8 +222,7 @@ Matthew 12:40-41
 
 ```For as Jonas was three days and three nights in the whale's belly; so shall the Son of man be three days and three nights in the heart of the earth. The men of Nineveh shall rise in judgment with this generation, and shall condemn it: because they repented at the preaching of Jonas; and, behold, a greater than Jonas is here.```
 
-**Don't waste your time
-**
+####  Don't waste your time
 Titus 3:10
 
 ```A man that is an heretick after the first and second admonition reject.```
