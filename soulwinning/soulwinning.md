@@ -9,5 +9,3 @@ layout: soulwinning
 ___
 
 ## [Click here to start](/soulwinning/soulwinning-instruction)
-
-___
