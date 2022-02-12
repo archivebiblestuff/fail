@@ -63,15 +63,16 @@ When we are saved, we are saved. Once saved, always saved. Nothing at all can se
 
 
 ## Keep this in Mind:
-We all sin.
 
-We all deserve hell.
+* We all sin.
 
-Jesus died, was buried, and rose again for our sake.
+* We all deserve hell.
 
-Believe on the Lord Jesus Christ, and you will be saved.
+* Jesus died, was buried, and rose again for our sake.
 
-Your salvation is eternal.
+* Believe on the Lord Jesus Christ, and you will be saved.
+
+* Your salvation is eternal.
 
 
 I'll end this with a prayer. If you say it truly believing every word, you will be saved.
