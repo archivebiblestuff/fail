@@ -36,7 +36,6 @@ Earlier, I cut Romans 6:23. As we can see here, the gift of God is eternal life 
 ## 3. Christ Died for Us
 ```Romans 5:8: But God commendeth his love toward us, in that, while we were yet sinners, Christ died for us.```
 
-
 Jesus Christ died for you. He didn't do that thinking you were worthy by your mighty works, he did it because he loved you even though you were a sinner. So we are all sinners, and we all deserve death, and we all deserve Hell, and yet we have a gift of eternal life from Christs death. Is his death the end though?
 
 ```1 Corinthians 5:3-4: For I delivered unto you first of all that which I also received, how that Christ died for our sins according to the scriptures; And that he was buried, and that he rose again the third day according to the scriptures:```
@@ -62,15 +61,48 @@ Anyone, who believes. Whosoever believes, will not perish but have everlasting l
 God sent Jesus to save us and not condemn us, but you will be condemned if you don't believe. 
 
 ```Romans 5:1: Therefore being justified by faith, we have peace with God through our Lord Jesus Christ:```
+
 After we get justified by faith, there is of course one more thing. Peace. We will have peace with God, Christians will still be persecuted here, but they will have peace with God, not with men. We do not need to worry about what will happen to us after death, because we are saved.
 
+## 6. Faith alone, no works
 
-## 5. Eternal security
-What happens if we sin though? What happens if we stop believing? 
+```Ephesians 2:8-9 For by grace are ye saved through faith; and that not of yourselves: it is the gift of God: Not of works, lest any man should boast.```
+
+Works can't save us, it is only faith
+
+```Isaiah 64:6 But we are all as an unclean thing, and all our righteousnesses are as filthy rags; and we all do fade as a leaf; and our iniquities, like the wind, have taken us away.```
+
+All our works (when it comes to salvation) are as filthy rags. It's good to do them, but the mindset of working your way to heaven is cringe to God
+
+```Galatians 2:16 Knowing that a man is not justified by the works of the law, but by the faith of Jesus Christ, even we have believed in Jesus Christ, that we might be justified by the faith of Christ, and not by the works of the law: for by the works of the law shall no flesh be justified.```
+
+Following the law does not save you
+
+```Galatians 2:21 I do not frustrate the grace of God: for if righteousness come by the law, then Christ is dead in vain.```
+
+If your works come by the law, why did Christ have to die?
+
+## 7. Eternal security
+What happens if we sin though?
 
 ```Romans 8:38-39: For I am persuaded, that neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come, Nor height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord.```
 
 When we are saved, we are saved. Once saved, always saved. Nothing at all can separate you from your salvation.
+
+``` Hebrews 12:6 For whom the Lord loveth he chasteneth, and scourgeth every son whom he receiveth.```
+
+```Hebrews 12:9 Furthermore we have had fathers of our flesh which corrected us, and we gave them reverence: shall we not much rather be in subjection unto the Father of spirits, and live```
+
+He will chastise us just like our fathers of our flesh
+
+```John 10:28 And I give unto them eternal life; and they shall never perish, neither shall any man pluck them out of my hand.```
+
+No man (or your works) can take salvation from Jesus' hand
+
+```John 6:37 All that the Father giveth me shall come to me; and him that cometh to me I will in no wise cast out.```
+
+He will not cast out your salvation from his hand
+
 
 ## Keep in Mind:
 * We all sin.
@@ -83,4 +115,11 @@ I'll end this with a prayer. If you say it truly believing every word, you will 
 
 ```Dear Jesus, I know that I am a sinner, and I deserve to go to hell, but I believe that you died for me, was buried, and rose again. Please save me and give me eternal life. I’m only trusting in you, not my works. In Jesus’ name I pray. Amen.```
 
+Hey, you meant that, didn’t you. You know the Bible says you’re on your way to Heaven. There’s nothing you can do to lose it. Isn’t that great news? :)
 
+Start reading the Gospel of John, and join this [server](https://discord.gg/CSeuchFqqc)
+
+Check this [pdf file](https://ifbased.github.io/assets/pdf/New%20Believer.pdf) too.
+
+
+God bless you and have a great day.
