@@ -1,13 +1,7 @@
 ---
-title: IFBased
-layout: home
----
-
----
 title: The Bible Way to Heaven
 layout: home
 ---
-
 
 ## 1. Sin
 
