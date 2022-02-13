@@ -4,56 +4,77 @@ layout: home
 ---
 
 
-## Salvation is not based on how good you are.
+## 1. Sin
 
-```Romans 3:23 For all have sinned, and come short of the glory of God;```
-```Romans 3:10 As it is written, There is none righteous, no, not one```
+```Romans 3:23: For all have sinned, and come short of the glory of God.```
 
-No one is perfect, no one is good enough, we all come short. If getting into heaven was based on how perfect we are, none of us would be going.
+If you're reading this, you're a sinner. If you're not, you're still a sinner. You are a sinner, I am a sinner. We've all sinned. You need to understand that first and foremost
+
+```Romans 6:23: For the wages of sin is death.```
+
+## 2. Hell
+
+Because of your sin, you are dying. You will die someday, and it is inevitable. Understand this
+
+```Revelation 20:14: And death and hell were cast into the Lake of fire. This is the second death.```
+
+You die once on Earth, this is the wages of your sins. But some people are going to be going to second death, which is known as the lake of fire, or Hell. But it's not just death and hell going, there are more
+
+```Revelation 21:8: But the fearful, and unbelieving, and the abominable, and murderers, and whoremongers, and sorcerers, and idolaters, and all liars shall have their part in the lake which burneth with fire and brimstone: which is the second death.```
+
+Notice what it says, "all liars" are going. I've lied before, you've probably lied before. This is such a common sin, you need to be fearful of this. You will join death and hell in the second death. That is Hell, it is eternal death.
+
+```Romans 6:23: For the wages of sin is death;  but the gift of God is eternal life through Jesus Christ our Lord.```
+
+Earlier, I cut Romans 6:23. As we can see here, the gift of God is eternal life through Jesus Christ our Lord. What that means is that while we have the "wages" of the first death, we do not need to go to the second death. We have a gift from God, and that is eternal life. But will even sinners get this?
+
+## 3. Christ Died for Us
+```Romans 5:8: But God commendeth his love toward us, in that, while we were yet sinners, Christ died for us.```
 
 
-### 1. Admit You Are A Sinner
+Jesus Christ died for you. He didn't do that thinking you were worthy by your mighty works, he did it because he loved you even though you were a sinner. So we are all sinners, and we all deserve death, and we all deserve Hell, and yet we have a gift of eternal life from Christs death. Is his death the end though?
 
-```Revelation 21:8 But the fearful, and unbelieving, and the abominable, and murderers, and whoremongers, and sorcerers, and idolaters, and all liars, shall have their part in the lake which burneth with fire and brimstone: which is the second death.```
+```1 Corinthians 5:3-4: For I delivered unto you first of all that which I also received, how that Christ died for our sins according to the scriptures; And that he was buried, and that he rose again the third day according to the scriptures:```
 
-Everyone has lied, so we’ve all sinned and we all deserve hell.
+Christ died for our sins, he was buried in the Earth, and he rose again on the third day. And as it said in the verse above, He did this for us. He gave us the gift of not eternal death in Hell, but eternal life in Heaven. 
 
-## 2. Realize The Penalty For Sin
+## 4. Believe to be Saved
 
-But the Bible says that Christ died for us even though we are sinners.
+How do we get this gift of eternal life though?
 
-```Romans 5:8 8 But God commendeth his love toward us, in that, while we were yet sinners, Christ died for us.```
+```Romans 10:9: That if thou shalt confess with thy mouth the Lord Jesus, and shalt believe in thine heart that God hath raised him from the dead, thou shalt be saved.```
 
-And so Jesus Christ because he loves us came to this earth, the Bible says he was God manifested in human flesh. God took on human form, he lived a sinless life, he did not commit any sin, and of course, they beat him, spit on him, and nailed Him to the cross.
+Read this verse again, with power this time. We can escape the second death which we all deserve by believing on Christ. This is good news. This is gospel.
 
-```1 Timothy 3:16 And without controversy great is the mystery of godliness: God was manifest in the flesh, justified in the Spirit, seen of angels, preached unto the Gentiles, believed on in the world, received up into glory.```
+Confess the Lord Jesus, and you will be saved. Look at the most famous verse in the Bible
 
-The Bible says when he was on that cross, He will bear our sins in His own body on the tree. So every sin you’ve ever done and I’ve ever done is as if Jesus had done it. 
+```John 3:16: For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.```
 
-```1 Peter 2:24 Who his own self bare our sins in his own body on the tree, that we, being dead to sins, should live unto righteousness: by whose stripes ye were healed.```
+Anyone, who believes. Whosoever believes, will not perish but have everlasting life. It continues on
 
-He was being punished for our sins and then, of course, they took his body when he died and buried it in the tomb and his soul went down to hell for 3 days and 3 nights. 
+```John 3:17-18: For God sent not his Son into the world to condemn the world; but that the world through him might be saved. He that believeth on him is not condemned: but he that believeth not is condemned already, because he hath not believed in the name of the only begotten Son of God.```
 
-```Acts 2:31 He seeing this before spake of the resurrection of Christ, that his soul was not left in hell, neither his flesh did see corruption.```
+God sent Jesus to save us and not condemn us, but you will be condemned if you don't believe. 
 
-3 days later he rose again from the dead, he showed unto the disciples the holes in his hands and the Bible is really clear that Jesus did die for everybody. 
+```Romans 5:1: Therefore being justified by faith, we have peace with God through our Lord Jesus Christ:```
+After we get justified by faith, there is of course one more thing. Peace. We will have peace with God, Christians will still be persecuted here, but they will have peace with God, not with men. We do not need to worry about what will happen to us after death, because we are saved.
 
-```1 John 2:2 And he is the propitiation for our sins: and not for ours only, but also for the sins of the whole world.```
 
-But there’s something we must do to be saved (```Acts 16:30-31 And brought them out, and said, Sirs, what must I do to be saved? And they said, Believe on the Lord Jesus Christ, and thou shalt be saved, and thy house.```) and that’s it. He didn’t say join a church and be saved nor get baptized, live a good life, nor repent of all your sins and you’ll be saved. No, he said, “believe.”
+## 5. Eternal security
+What happens if we sin though? What happens if we stop believing? 
 
-## 3. Believe That Jesus Died, Was Buried, And Rose Again For You
+```Romans 8:38-39: For I am persuaded, that neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come, Nor height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord.```
 
-The most famous verse in the whole Bible (```John 3:16 For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.```) will tell you that by believing in Christ you will have everlasting life. Keep in mind that everlasting means forever. John 10:28 says that no man can pluck you out of your eternal life.
+When we are saved, we are saved. Once saved, always saved. Nothing at all can separate you from your salvation.
 
-```John 10:28 And I give unto them eternal life; and they shall never perish, neither shall any man pluck them out of my hand.```
+## Keep in Mind:
+* We all sin.
+* We all deserve hell.
+* Jesus died, was buried, and rose again for our sake.
+* Believe on the Lord Jesus Christ, and you will be saved.
+* Your salvation is eternal.
 
- John 6:47 and 11:26 tell you that whoever believes in Christ shall have everlasting life and never perish.
- 
- ```John 6:47 Verily, verily, I say unto you, He that believeth on me hath everlasting life.```
+I'll end this with a prayer. If you say it truly believing every word, you will be saved.
 
-```John 11:26 And whosoever liveth and believeth in me shall never die. Believest thou this?```
-
-## 4 Trust Christ Alone As Your Saviour
-
+```Dear Jesus, I know that I am a sinner, and I deserve to go to hell, but I believe that you died for me, was buried, and rose again. Please save me and give me eternal life. I’m only trusting in you, not my works. In Jesus’ name I pray. Amen.```
 
