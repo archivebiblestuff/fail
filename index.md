@@ -32,7 +32,7 @@ Earlier, I cut Romans 6:23. As we can see here, the gift of God is eternal life 
 
 Jesus Christ died for you. He didn't do that thinking you were worthy by your mighty works, he did it because he loved you even though you were a sinner. So we are all sinners, and we all deserve death, and we all deserve Hell, and yet we have a gift of eternal life from Christs death. Is his death the end though?
 
-```1 Corinthians 5:3-4: For I delivered unto you first of all that which I also received, how that Christ died for our sins according to the scriptures; And that he was buried, and that he rose again the third day according to the scriptures:```
+```1 Corinthians 15:3-4: For I delivered unto you first of all that which I also received, how that Christ died for our sins according to the scriptures; And that he was buried, and that he rose again the third day according to the scriptures:```
 
 Christ died for our sins, he was buried in the Earth, and he rose again on the third day. And as it said in the verse above, He did this for us. He gave us the gift of not eternal death in Hell, but eternal life in Heaven. 
 
