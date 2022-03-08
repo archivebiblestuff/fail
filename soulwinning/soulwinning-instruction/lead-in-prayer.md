@@ -1,6 +1,6 @@
 ---
 title: Finishing Leading in Prayer
-layout: soulwinning
+layout: default
 ---
 ## 4 - Finishing Leading in Prayer
 
