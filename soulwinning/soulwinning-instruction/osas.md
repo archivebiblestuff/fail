@@ -1,6 +1,6 @@
 ---
 title: Once Saved, Always Saved (OSAS)
-layout: soulwinning
+layout: default
 ---
 
 ## 3 - Once Saved, Always Saved (OSAS)
