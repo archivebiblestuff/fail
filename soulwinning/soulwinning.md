@@ -1,6 +1,6 @@
 ---
 title: IFBased
-layout: soulwinning
+layout: default
 ---
 
 ### How to present the Gospel of Jesus Christ. (KJV)
