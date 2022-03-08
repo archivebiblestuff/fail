@@ -1,6 +1,6 @@
 ---
 title: Determine if one is Saved
-layout: soulwinning
+layout: default
 ---
 
 ### You cannot see this unless you are saved, join this [server](https://dsc.gg/saved) to see.
